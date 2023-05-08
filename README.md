@@ -1,2 +1,5 @@
+
+# Proclaiming the three angels messages
 # Riverbank-SDA-church
-Church 
+# For holistic evangelizing in these last days
+# Church website for mission 
